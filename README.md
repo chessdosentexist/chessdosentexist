@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about giant lasers
 - 💞️ I’m looking to collaborate on building a death star
 - 📫 How to reach me messenger pigeon
-- 😄 Pronouns: he/theey
+- 😄 Pronouns: he/they
 - ⚡ Fun fact: the first large scale use of microwaves was humainely reviving frozen hampsters... don't belive me? google it.
 
 <!---
